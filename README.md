@@ -8,5 +8,4 @@ yeah
 yoyoyo
 
 #### underunderunderrubrik!
-jorå såatt nu är det lite nytt här!
-Och nu finns det ytterligare lite nytt!!!
+newest thing.
